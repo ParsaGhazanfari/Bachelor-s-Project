@@ -1,5 +1,5 @@
 
-**Bachelor Project Title:**  
+**Bachelor Project Members:**  
 **Parsa Ghazanfari & Mohammadhossein Faramarzi**
 
 We, the undersigned, hereby grant copyright consent for the bachelor project titled above.  
